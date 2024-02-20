@@ -2,8 +2,6 @@
 
 
 ## Thanks To
-
-<div>𝐀𝐮𝐭𝐡𝐨𝐫 : Iky𝖔𝖋𝖋𝖎𝖈𝖎𝖆𝖑ཽ </div></br>
-<div>Whatsapp : 085794908894</div></br>
+𝐀𝐮𝐭𝐡𝐨𝐫 : Iky𝖔𝖋𝖋𝖎𝖈𝖎𝖆𝖑ཽ </br>
 Thanks To :</br>
 - Iky Official
